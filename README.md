@@ -13,5 +13,6 @@ This year I’m challenging myself to explore my creativity.
 
 I live in New York City with Spencer and Brian. One walks on two legs, the other on four. 
 
-
 I try to pay it forward; feel free to reach out.
+
+[LinkedIn](https://linkedin.com/in/peterelbaor) | [Github](https://github.com/roablep) | [Spotify](https://open.spotify.com/user/pip56789) | [Keybase](https://keybase.io/roablep)
