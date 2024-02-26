@@ -14,4 +14,4 @@ This year I’m challenging myself to explore my creativity.
 I live in New York City with Spencer and Brian. One walks on two legs, the other on four. 
 
 
-I try to pay it forward; feel free to reach out - peter at catuallan.com
+I try to pay it forward; feel free to reach out.
