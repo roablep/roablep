@@ -11,6 +11,8 @@ I'm an inquisitive guy with varied interests. I try not to take myself too serio
 
 - I'm motivated by team building, navigating complex organizations, and finding product-market fit in unlikely places.
 
+- Currently working on Catullan Co, a builder studio for bizarre, boring, or big opportunities. Learn more [here](https://catullan.com).
+
 #### Track Record
 
 I've experienced the spectrum of bootstrapped startup failures to enterprise successes. My professional bets _tend_ to be more often right than wrong:
