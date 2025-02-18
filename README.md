@@ -32,7 +32,7 @@ I've experienced the spectrum of bootstrapped startup failures to enterprise suc
 
 - I'm passionate about Burning Man, PLUR rave culture, and urban planning.
 - I have a well-trained dog and several bicycles.
-- I can be neurotic and will pull on a thread for longer than I probably should.
+- I will pull on a thread for longer than I probably should.
 - This year I’m challenging myself to explore my creativity.
 - I live in New York City with Spencer and Brian. One walks on two legs, the other on four.
 
